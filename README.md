@@ -1,0 +1,1 @@
+# SKKNI_KOMINFO
